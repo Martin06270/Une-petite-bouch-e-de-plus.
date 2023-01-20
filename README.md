@@ -1,1 +1,1 @@
-# Une-petite-bouch-e-de-plus.
+# Une-petite-bouchée-de-plus.
